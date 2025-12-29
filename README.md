@@ -4,7 +4,7 @@ Email Me 👉 ✉️ debnathsunny7852@gmail.com For Collaboration/Project or Any
 🔭 I’m currently working on:Smith IT (May-2025-Now)
 🌱 I’m currently learning: DevOps
 💬 Ask me about: Collaboration, Tech Support
-📫 How to reach me: Enter your email here
+📫 How to reach me: debnathsunny7852@gmail.com
 😄 Pronouns: Deb Sunny
 ⚡ Fun fact: I Love Tech and Tech Love Me
 ## 🌐 Socials:
