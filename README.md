@@ -1,4 +1,4 @@
-💫 Hi 👋, I'm Db Brotho Sunny( Deb Sunny)
+💫 Hi 👋, I'm Deb Brotho Sunny( Deb Sunny)
 A passionate Software Engineer || 
 Email Me 👉 ✉️ debnathsunny7852@gmail.com For Collaboration/Project or Anything Else. 😊😊
 🔭 I’m currently working on:Smith IT (May-2025-Now)
